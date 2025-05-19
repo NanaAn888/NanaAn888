@@ -1,5 +1,6 @@
 
-- 👀 I’m interested in python,machine_learning,ai apps development. 🌱I'm recently learning.💞️I'm looking to collaborate on my project if you have any interested.
+
+- 👀 I’m interested in python,machine_learning,ai apps development. 🌱I'm recently learning.💞️I'm looking for you to collaborate on my project if you have any interest.
 - 📫Please feel free to reach out ann550168@gmail.com
 
 
